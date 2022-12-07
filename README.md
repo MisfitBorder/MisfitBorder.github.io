@@ -1,2 +1,0 @@
-# MisfitBorder.github.io
-FAQ
